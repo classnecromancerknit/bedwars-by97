@@ -1,4 +1,4 @@
-#  
+#  hidden bedwars Scripts is the best bedwars Script, featuring aimbot and private server access. Safe and powerful for all your needs.
 
 
 
